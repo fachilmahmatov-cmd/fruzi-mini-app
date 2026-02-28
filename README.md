@@ -1,0 +1,1 @@
+# fruzi-mini-app
